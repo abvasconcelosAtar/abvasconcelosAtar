@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Alex Vasconcelos
-- Main profile: [@lekobarros]([https://www.github.com/octokatherine](https://github.com/lekobarros)https://github.com/lekobarros)
+- Main profile: [@lekobarros](https://github.com/lekobarros)
